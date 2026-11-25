@@ -72,6 +72,6 @@
 
 <br>
 
-<sub>˚₊‧ thanks for stopping by, have a lovely day ♡ ‧₊˚</sub>
+<sub>˚₊‧ thanks!, have a lovely day ♡ ‧₊˚</sub>
 
 </div>
