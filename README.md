@@ -4,7 +4,7 @@
 
 <sub>⋆｡°✩ ₊˚⊹ ♡ ⊹˚₊ ✩°｡⋆</sub>
 
-*✿ just a stats student figuring things out one dataset at a time ✿*
+*✿ just a stats student ✿*
 
 </div>
 
