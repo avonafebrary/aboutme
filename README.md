@@ -16,7 +16,7 @@
 
 </div>
 
-♡ university student in Indonesia 🇮🇩, majoring in statistics
+♡ undergraduate at jederal soedirman university 🇮🇩, majoring in statistics
 ♡ into actuarial science, algorithm analysis, linear algebra, and multivariable calculus
 ♡ active in my department's student association (himpunan statistika)
 ♡ currently learning: data analysis, statistical modeling, and writing cleaner code
