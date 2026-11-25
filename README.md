@@ -4,7 +4,7 @@
 
 <sub>⋆｡°✩ ₊˚⊹ ♡ ⊹˚₊ ✩°｡⋆</sub>
 
-*✿ statistics student who loves turning messy data into something meaningful ✿*
+*✿ just a stats student figuring things out one dataset at a time ✿*
 
 </div>
 
